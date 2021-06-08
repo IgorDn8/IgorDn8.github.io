@@ -1,3 +1,3 @@
 # IgorDn8.github.io
 
-Personal webpage https://igordn8.github.io/
+Personal webpage edited version https://igordn8.github.io/
